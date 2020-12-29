@@ -27,3 +27,14 @@ Things you may want to cover:
 
 
 ( ^ω^ )٩( 'ω' )و
+hey
+はぎわらです
+
+
+
+
+
+
+
+takayaaaaaaaaaaaaa
+takaya version2
