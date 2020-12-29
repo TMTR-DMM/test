@@ -24,6 +24,9 @@ Things you may want to cover:
 * ...
 萩原
 
+
+
+( ^ω^ )٩( 'ω' )و
 hey
 はぎわらです
 
